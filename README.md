@@ -1,4 +1,4 @@
-# Me! (if ya wanna know stuff bout' me!)
+Me! (if ya wanna know stuff bout' me!)
 
 this is still wip so this'll look bad for a bit but it'll look better in the future! 
 
