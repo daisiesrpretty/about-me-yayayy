@@ -9,6 +9,9 @@ this is for pony town, or i guess anything if you find this idk.
  
 Heya! call me daisy! orr... when im not kinning anyone in the moment Its either Temp/Stormy 
 (and rose if you know me well!)
+
+you'll mostly see me with my partner yayyyaayyy hooray !!1!1 ❤️❤️❤️💕💕 only interact with me if you know us BOTH.
+
 I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) (mostly all my kins) and other fandom women - like hyuna n lime girl. (ALNST and LHG)
 
 but my main- my n1 kin is Daisy!! (TLG) I see me in her- quite the lot. i might make a kinsona !!
@@ -22,7 +25,7 @@ tone it down on the kisses and cud. dont flirt unless you know me personally off
 C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRRRR with my daughter (Estrella)!!  (or just if you see me with someone already-)
 
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
-any Roblox Psychological (i dont play forsaken anymore but I love the characters and lore)
+any Roblox Psychological Horror (i dont play forsaken anymore but I love the characters and lore)
 
 Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 
@@ -30,4 +33,6 @@ I am a yume-shipper 👍👍 (chance. 👀👀👀👀👀👀👀👀👀 chanc
 
 18+ fellas pls dont interact unless family. 
 im omnisexual/bi with a male pref. :]
+
+
 
