@@ -27,6 +27,7 @@ any Roblox Psychological (i dont play forsaken anymore but I love the characters
 Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 
 I am a yume-shipper 👍👍 (chance. 👀👀👀👀👀👀👀👀👀 chance pls int & c+h when im my sona👀👀👀👀)
+
 18+ fellas pls dont interact unless family. 
 im omnisexual/bi with a male pref. :]
 
