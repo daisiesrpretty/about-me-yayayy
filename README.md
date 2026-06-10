@@ -1,3 +1,6 @@
+<img width="736" height="414" alt="1000012827" src="https://github.com/user-attachments/assets/397db331-3380-4ff7-b97f-a19f22a55a4f" />
+
+
 Me! (if ya wanna know stuff bout' me!)
 
 this is still wip so this'll look bad for a bit but it'll look better in the future! 
@@ -16,7 +19,7 @@ if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off eve
 mollydaisy ❤️ is welcome but-
 tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
 
-C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, ORRRRR with my daughter (Estrella)!! (or just if you see me with someone already-)
+C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRRRR with my daughter (Estrella)!!  (or just if you see me with someone already-)
 
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
 any Roblox Psychological (i dont play forsaken anymore but I love the characters and lore)
@@ -26,5 +29,4 @@ Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 I am a yume-shipper 👍👍 (chance. 👀👀👀👀👀👀👀👀👀 chance pls int & c+h when im my sona👀👀👀👀)
 18+ fellas pls dont interact unless family. 
 im omnisexual/bi with a male pref. :]
-<img width="735" height="551" alt="1000012829" src="https://github.com/user-attachments/assets/8d1793b6-6bee-4674-b17a-ec855a988541" />
 
