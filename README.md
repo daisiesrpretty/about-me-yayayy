@@ -12,27 +12,34 @@ Heya! call me daisy! orr... when im not kinning anyone in the moment Its either 
 
 you'll mostly see me with my partner yayyyaayyy hooray !!1!1 ❤️❤️❤️💕💕 only interact with me if you know us BOTH.
 
-I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) (mostly all my kins) and other fandom women - like hyuna n lime girl. (ALNST and LHG)
+I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) and other fandom women - like hyuna n lime girl. (ALNST and LHG (thats like all though)
 
 but my main- my n1 kin is Daisy!! (TLG) I see me in her- quite the lot. i might make a kinsona !!
 Im in a lot of fandoms.
-any TLG cosplayers (i mean ANY)
+any TLG cosplayers can c+h with me! or I guess anyone can if they want! 
 
 if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off ever so slightly. I DONT HAVE A GREAT HISTORY WITH MATTS.
-mollydaisy ❤️ is welcome but-
+
+mollydaisy ♡ is welcome but-
 tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
 
 C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRRRR with my daughter (Estrella)!!  (or just if you see me with someone already-)
 
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
-any Roblox Psychological Horror (i dont play forsaken anymore but I love the characters and lore)
+Roblox Admins (forgot to put this one in 😢)
+any Roblox Psychological Horror 
+There's a lot of fandoms- name it, im in it!
+(i dont play forsaken much but I love the characters and lore also im in GOOD side of it)
 
 Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 
 I am a yume-shipper 👍👍 (chance. 👀👀👀👀👀👀👀👀👀 chance pls int & c+h when im my sona👀👀👀👀)
 
 18+ fellas pls dont interact unless family. 
-im omnisexual/bi with a male pref. :]
+im omnisexual/bi & demi-romantic/sexual
+
+That's all- and if ya wanna know more I guess- just ask me im always welcome to new friends! (^^) 
+have a lovely dayyy (or night/evening!)
 
 
 
