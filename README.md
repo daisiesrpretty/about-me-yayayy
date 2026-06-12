@@ -25,7 +25,9 @@ C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
 Roblox Admins, (forgot to put this one in 😢)
 any Roblox Psychological Horror 
+
 Also.. Err FNF/PJSK/JSAB (i ♡ rhythm games!!)
+
 There's a lot of fandoms- name it, im in it!
 (i dont play forsaken much but I love the characters and lore also im in GOOD side of it)
 
