@@ -38,7 +38,9 @@ Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 I am a yume-shipper (chance. 👀👀👀👀👀👀👀👀👀 chance pls int & c+h when im my sona👀👀👀👀)
 
 18+ fellas pls dont interact unless family. 
-im omnisexual/bi & demi-romantic/sexual
+im omnisexual & demi-romantic/sexual
 
-That's all- and if ya wanna know more I guess- just ask me im always welcome to new friends! (^^) 
+That's all- and if ya wanna know more I guess- just ask me im always welcome to new friends!  (^^) 
 have a lovely dayyy (or night/evening!)
+
+(side note- I might block you on pt. cuz like. you bored me out ngl or like I just dont fucking want to be around you.)
