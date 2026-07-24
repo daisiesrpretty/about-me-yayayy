@@ -33,3 +33,5 @@ have a lovely dayyy (or night!)
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hhrcr6vntu5xbiyz3tkr7ogip4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=266485&bar_color_cover=true">
   </a>
 </p>
+
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
